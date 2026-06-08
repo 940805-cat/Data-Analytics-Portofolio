@@ -45,4 +45,5 @@ Bachelor's Degree in Psychology - Universidad El Bosque
 ## Contact
 
 LinkedIn:
-(add your LinkedIn link)
+[(add your LinkedIn link)](https://www.linkedin.com/in/catalina-silva-ab3247186/?locale=en)
+
